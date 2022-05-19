@@ -1,0 +1,3 @@
+# TUZUK
+
+Asagidaki gibidir:
